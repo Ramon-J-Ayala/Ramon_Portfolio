@@ -24,3 +24,6 @@ I wanted to get into graphic design to create pieces that fans of multiple seire
 
 [My Art](https://ramonaya15.wixsite.com/my-site)
 
+My Pieces
+
+![GDWD_W4_D4_Minimal_Movie_Poster](https://user-images.githubusercontent.com/79935684/109862983-173b4700-7c2f-11eb-8b4a-cba45569e215.jpg)
