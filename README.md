@@ -8,6 +8,19 @@ I wanted to get into graphic design to create pieces that fans of multiple seire
 
 ### Inspirations
 - Anime/Comics/Video Games
+1. Anime's like Fairytail and Fullmetal Alchemist
+2. DC and Marvel Comic's
+3. Fighting and RPG game's
+
 - Other Artist's 
-- People
+1. Raf Grassetti
+2. Tite Kubo
+3. Stan Lee
+
+- Character's
+1. Roy Mustang
+2. Dante 
+3. Redhood
+
+[My Art](https://ramonaya15.wixsite.com/my-site)
 
